@@ -1,0 +1,1 @@
+# KruglyakovA.S._DIPLOM
